@@ -1,2 +1,2 @@
 # CERTIFICATIONS-
-Here IT consists various Certifications done in different domains  
+Here it consists of various Certifications done in different domains  
